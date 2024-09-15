@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ShriyaSingh47
 - 👀 I’m interested in Horse riding,World tour,snowboarding 
 - 🌱 I’m currently learning AI and ML
-- 💞️ I’m looking to collaborate on ...NIELIT 
+- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Gmail,github,Google map
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...Silence everywhere!
